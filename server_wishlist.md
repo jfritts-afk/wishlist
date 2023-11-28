@@ -1,0 +1,2 @@
+# Potential Server Options
+** I full do not expect anything off of this list, they are *expensive* and are a lot to ask for. I really am unsure of what else to ask for, there isn't much else that I need**
